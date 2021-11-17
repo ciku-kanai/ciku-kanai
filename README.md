@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ciku-kanai
+- 👀 I’m interested in working on this platfom and working tirelessly on the tasks given
+- 🌱 Am a law student 
+- 💞️ I’m looking forward to collaborate on the various projects and promise to deliver quality work
+- 📫 you can reach out on my email @wanjikukanai@gmail.com
